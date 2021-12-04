@@ -3,6 +3,10 @@
   > can do addons like m.y. san cookie box.
   > common words from coffee reaction the sexy way
 
+# What you see is what you get
+  > random coffee box
+  > free random gifts
+
 # Future plans
   > An online dropship website that support local producers of coffee and other recurring commodities offered in bulk for more discounted and affordable price. And can also  support other products as well.
 
